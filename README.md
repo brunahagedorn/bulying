@@ -1,1 +1,1 @@
-# bulying
+# bullying
